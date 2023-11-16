@@ -1,0 +1,2 @@
+-  Hi, I’m mynik. 
+-  I’m interested in draw, or music. 
