@@ -6,7 +6,7 @@
 фандомчике маи ‼️хохохо
 
 
-#twitch #gi #h:sr #southpark #lofd #dw #regrevator #brawlstars #fnaf #opm #thevirusgame #murderdrones #identity5 (остальные забыла)  
+#twitch #gi #h:sr #southpark #lofd #dw #regrevator #brawlstars #fnaf #opm #thevirusgame #murderdrones #identity5 #crk (остальные забыла)  
 
 
 кинны : юг404/эплджек/альбедо/пуб.
